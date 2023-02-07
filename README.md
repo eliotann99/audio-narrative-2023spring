@@ -1,1 +1,1 @@
-I'm using Adobe Audtion instead of Audacity. So, to listen to my current draft, donwload the draft.mp3 and it should be able to work.
+Join me on a ride through a very busy yet fun day at school. Download the Finished Project.mp3 and enjoy!
